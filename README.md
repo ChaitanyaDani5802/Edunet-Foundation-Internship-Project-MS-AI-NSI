@@ -1,1 +1,1 @@
-# Edunet-Foundation-Internship-Project-MS-AINSI-
+# Edunet-Foundation-Internship-Project-MS-AI NSI-
